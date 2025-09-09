@@ -1,4 +1,6 @@
+
 ## Hi there 👋
+![childe-surprised](https://github.com/user-attachments/assets/3177cebd-2f74-421c-9f0d-c1a640155952)
 
 <!--
 **soliethTrejos/SoliethTrejos** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
