@@ -2,14 +2,10 @@
 Hi, is soli here
  <img src="https://user-images.githubusercontent.com/73097560/115834477-dbab4500-a447-11eb-908a-139a6edaec5c.gif"><br><br>
 
+<img width="960" height="306" alt="From KlickPin CF Try these viral dog walk essentials ideas that help you get the look without the stress with realistic ideas for busy days and small budgets — save - Pin-591801207322953725" src="https://github.com/user-attachments/assets/49156e24-26fd-4872-b995-d4e78a0e566e" />
 
-<p align="center">
-<img 
-  src="https://github.com/user-attachments/assets/616aef4c-7c29-407c-9c44-d1b3eae37fb7" alt="pengu-pudgy"  style="width: 150px; height: 150px; object-fit: contain;">
-  
- 
 
-  
+
 
 <p align="center">
 My social
@@ -21,7 +17,9 @@ My social
 My personality
   <p align="center">
 <img 
-  src="https://github.com/user-attachments/assets/231cba1f-6ae9-4ced-bf4e-441e755036e7" alt="pinky"  style="width: 150px; height: 120px; object-fit: contain;">
+  src="https://github.com/user-attachments/assets/017b4dc2-511e-4c75-9a57-27925eb59529" alt="pinky"  style="width: 150px; height: 170px; object-fit: contain;">
+
+
 
 
 
