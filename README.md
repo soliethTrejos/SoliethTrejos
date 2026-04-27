@@ -2,7 +2,7 @@
 Hi, is soli here
  <img src="https://user-images.githubusercontent.com/73097560/115834477-dbab4500-a447-11eb-908a-139a6edaec5c.gif"><br><br>
 
-<img width="460" height="106" alt="From KlickPin CF Try these viral dog walk essentials ideas that help you get the look without the stress with realistic ideas for busy days and small budgets — save - Pin-591801207322953725" src="https://github.com/user-attachments/assets/49156e24-26fd-4872-b995-d4e78a0e566e" />
+<img width="560" height="206" alt="From KlickPin CF Try these viral dog walk essentials ideas that help you get the look without the stress with realistic ideas for busy days and small budgets — save - Pin-591801207322953725" src="https://github.com/user-attachments/assets/49156e24-26fd-4872-b995-d4e78a0e566e" />
 
 
 
